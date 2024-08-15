@@ -10,6 +10,4 @@
 
 - 00001104183456sp@al.educacao.sp
 
-- beeatriz__oliveira__
-
-- ![](http://mídia.tenor.com/i7TDaTPtuAAAAC/naruto.gif)
+![](http://mídia.tenor.com/i7TDaTPtuAAAAC/naruto.gif)
