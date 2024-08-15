@@ -10,4 +10,5 @@
 
 - 00001104183456sp@al.educacao.sp
 
-![](http://mídia.tenor.com/i7TDaTPtuAAAAC/naruto.gif)
+
+- https://tenor.com/pt-BR/view/100-gif-26860519
